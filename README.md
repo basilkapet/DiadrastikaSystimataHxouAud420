@@ -1,4 +1,4 @@
-# - 👋 Hi, I’m @basilkapet
+ - 👋 Hi, I’m @basilkapet
 
 - 👀 I’m interested in ...
 
